@@ -5,7 +5,7 @@ EDUCATION ![image](https://github.com/user-attachments/assets/6dd2552f-f619-4026
 CONTACT ![image](https://github.com/user-attachments/assets/3df6cf00-f79c-4742-b1cd-51de38b7c138)
 FOOTER ![image](https://github.com/user-attachments/assets/db37c6a7-1a8e-449a-b866-005ce974c19e)
 
-For me info contact me via: +254795695670
+For more info contact me via: +254795695670
 Email: samsonmutemi377@gmail.com
 
 
